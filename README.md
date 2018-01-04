@@ -1,4 +1,4 @@
-# condotel-the-arena-va-chien-luoc-dau-tu-thong-minh
+# condotel-the-arena-va-chien-luoc-dau-tu-thong
 Sau lễ ra mắt diễn ra vào ngày 23/12, dự án Condotel The Arena Cam Ranh hứa hẹn sẽ thu hút được dòng tiền đầu tư lớn của những khách hàng thông thái. 
 Sau lễ ra mắt diễn ra vào ngày 23/12, dự án <strong>Condotel The Arena</strong> hứa hẹn sẽ thu hút được dòng tiền đầu tư lớn của những khách hàng thông thái. Và sau khi đã quyết định xuống tiền, các nhà đầu tư hoàn toàn có thể tin tưởng vào sự thành công rực rỡ của dự án trong tương lai.
 
